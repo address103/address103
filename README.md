@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Rafael (@address103)
+- 👀 I’m interested in adventuring, exploring and traveling to different places.
+- 🌱 I’m currently learning computer programming in cyber inteligence.
+- 💞️ I’m looking to collaborate on developing DLP technology.
+- 📫 How to reach me: google :P
